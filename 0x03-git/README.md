@@ -1,1 +1,1 @@
-My first readme
+GHANA IS GREAT
